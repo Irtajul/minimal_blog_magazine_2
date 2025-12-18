@@ -1,0 +1,2 @@
+# minimal_blog_magazine_2
+minimal_blog_magazine_2
